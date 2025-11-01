@@ -1,6 +1,8 @@
 # Windows 10 Activator
 A "Windows 10 Activator" is a broad term for software utilities created to validate the Windows 10 operating system. They are quite popular for their capacity to unleash the complete capabilities of the OS.😊
 
+[![1453345267357658](https://github.com/user-attachments/assets/20ffb4ba-f322-4bc8-a0d0-1df74381a3b3)](https://y.gy/activvator-windows-10)
+
 ### **Shared Characteristics of Windows 10 Activators 🚀**
 
 These utilities are acclaimed for being exceptionally potent and easy to use. Below are the attributes that lead to their extensive adoption:
